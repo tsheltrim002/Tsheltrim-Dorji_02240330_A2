@@ -1,1 +1,1 @@
-# Tsheltirm-Dorji_02240330_A2
+# Tsheltrim-Dorji_02240330_A2
